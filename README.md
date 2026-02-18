@@ -1,0 +1,113 @@
+# J. Cole – Poor Thang
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:02.03] So close
+[00:03.30] Boom-boom-boom-boom-boom-boom-boom
+[00:20.30] 
+[00:10.68] Poor thing, young pup's playin' war games
+[00:13.24] He wanted love, but he only made more pain
+[00:15.00] Poor thing, young pup's playin' war games
+[00:18.51] He wanted love, but he only made more pain
+[00:39.51] 
+[00:21.16] Picture my soul climbin' out of infinite holes
+[00:23.80] Where niggas die over pride and live for the dough
+[00:26.36] If I survive, then I strive to hit with the flow
+[00:28.00] Hopin' these waves will pave, but the ripples is slow
+[00:31.68] And I'm conflicted with no digits to show
+[00:33.79] But fantasies of frivolous hoes grippin' this pole
+[00:36.36] The temperaturе's low
+[00:37.40] But you know that ain't stoppin' lil' nigga from slidin', like the tires on thе whip in the snow
+[00:42.08] Vicious for sure, I'm tip-toein' around the abyss with sticks blowin'
+[00:45.63] Piss poor with intentions to glimpse, the wrist glowin'
+[00:48.19] Face, tits, for rent, owing
+[00:49.79] Fist clenched when niggas diss, but since knowin'
+[00:52.47] Lives expire when niggas pride gets higher
+[00:54.88] Than the vocal range inside, but rise vocal chain, uh
+[00:57.80] My road to fame is rife with spikes and broken lanes
+[01:00.52] And tolls I can't afford, but I won't complain
+[01:02.87] I know the more I gotta struggle is the more I gain
+[01:05.47] Post-traumatic stress on an immature brain
+[01:08.19] Leaves another corpse, young pup playin' war games
+[01:10.75] Now he's handcuffed, old lady sayin', "Poor thing"
+[01:35.75] 
+[01:13.35] Poor thing, young pup's playin' war games
+[01:15.87] He wanted love, but he only made more pain
+[01:18.55] Poor thing, young pup's playin' war games
+[01:21.07] He wanted love, but he only made more pain
+[01:42.07] 
+[01:23.71] You wanna talk shit? You wanna run your mouth?
+[01:25.67] You want some gangsta's front yo motherfuckin' house?
+[01:28.02] We'll set this bitch off, yeah, set this bitch off
+[01:30.55] We'll set this bitch off, set this bitch off (Set)
+[01:33.19] You wanna—
+[01:38.19] 
+[01:33.90] Here go a song that gets this shit off of my sternum
+[01:36.50] This nigga back home been talkin' slick, and I done heard him
+[01:39.13] You get your name goin', niggas like that gon' throw they dirt on
+[01:41.61] You make you some calls, niggas gon' act like you ain't earn 'em
+[01:44.49] He talk like he live, but I remember him from high school
+[01:47.18] Man, deep down inside, know he a bitch, I wanna hurt him
+[01:49.45] I know that's my pride, I carry it just like a burden
+[01:52.17] When egos is flarin', beware that's when they close the curtain (Put your hands up)
+[01:55.39] It's when they close the curtain (Put your motherfu—)
+[01:58.68] It's when they close the curtain (You pullin' out a gun, nigga? Yo, chill, chill, chill-chill-chill-chill)
+[02:01.60] It's when they close the curtain (You pullin' out a gun, nigga? Yo, chill, chill, chill, chill)
+[02:04.15] It's when they close the curtain (You gon' shoot me? No, no, no)
+[02:36.15] 
+[02:04.94] Don't pull out no pistol, run me my fade
+[02:07.98] Come get your issue, no one gets sprayed
+[02:10.45] Win or you lose, live to fight another day
+[02:13.10] And if I take an L, I won't feel no way
+[02:32.60] 
+[02:15.81] Plenty nights a nigga didn't eat, punk bitch
+[02:18.21] Rent owed, damn near was on the street, punk bitch
+[02:20.89] Weren't no Western Unions, so you were not needed, punk bitch
+[02:23.37] All of a sudden, I'm buzzin', oh, now it's beef, punk bitch
+[02:26.01] Go 'en and pop off, get fucked 'bout your mystique, punk bitch
+[02:28.66] I knew you way before you was actin' street, punk bitch
+[02:31.21] Started rollin' with niggas that's packin' heat, punk bitch
+[02:33.89] You more like me than them niggas, you still a geek, punk bitch
+[02:36.41] You can't hide it with tattoos on your physique, punk bitch
+[02:38.78] And that lingo you added, that how you speak, punk bitch?
+[02:41.69] And you grew up with both your parents to teach, punk bitch
+[02:44.29] So how the fuck all of a sudden you turnin' G, punk bitch?
+[02:47.05] You a slave to the peer pressure, you're weak, punk bitch
+[02:49.44] You ain't claimin' no real section, your street wasn't lit
+[02:51.85] Man, your shit look like mine, with hella tree trunks, bitch
+[02:54.53] Moved to Forest Hill Drive, and it was peace for a bit
+[02:57.29] 'Til domestic turned violent, then a key just switched
+[02:59.64] In the back of my mind, I gotta be somethin', bitch
+[03:02.60] That's when I started rhymin' and makin' beats, son o' bitch
+[03:05.21] Way before you was lyin' 'bout touchin' keys, son o' bitch
+[03:07.76] Heard you say I ain't real, that's your belief, huh, bitch?
+[03:10.36] Well, look, I'm back in the 'Ville, so we can see, punk bitch
+[03:12.93] Gonna shoot me the fair one when we meet, punk bitch
+[03:15.56] And don't be bringin' no hammers, nah, don't cheat, punk bitch
+[03:18.21] Nah, don't cheat, punk bitch
+[03:20.85] Tryna lean on that shit, nigga, I want my fuckin' head up ('Cause I've been through lots of things)
+[03:25.12] Punk bitch (Real)
+[03:27.97] Punk bitch, huh
+[03:35.47] 
+[03:28.73] Poor thing, young pup's playin' war games
+[03:31.67] He wanted love, but he only made more pain
+[03:34.19] Poor thing, young pup's playin' war games
+[03:36.75] He wanted love, but he only made more pain
+[03:57.75] 
+[03:39.47] Don't pull out no pistol, run me my fade
+[03:42.07] Come get your issue, no one gets sprayed
+[03:44.59] Win or you lose, get to fight another day
+[03:47.19] And if I take an L, I won't feel no way
+[03:53.32] 'Cause I've been through lots of things
+[04:12.82] 
+[04:17.20] Hey, what's up? Hey what's up
+[04:21.29] Hey, what's up?
+[04:23.78] Yo, what's good?
+[04:26.65] Hey
+[04:28.01] Hey, what's up? What's up, how you been?
+[04:31.29] Nah, fuck
+[04:46.77] Your call has been forwarded to voicemail
+[04:48.61] The person you're trying to reach
+[04:49.90] Fuck
+```
